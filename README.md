@@ -1,2 +1,0 @@
-# zian
-hayuuuu
